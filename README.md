@@ -46,4 +46,4 @@ I may update our Privacy Policy from time to time. Thus, you are advised to revi
 This policy is effective as of 2023-02-19
 
 # Contact Us
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at venzellcoder@gmail.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at viacheslav.sakharov.games@gmail.com.
